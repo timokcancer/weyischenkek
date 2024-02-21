@@ -1,3 +1,5 @@
+https://lasercock.com/
+
 Fragen:
 
 Wann wurde die DDR und die BRD gegründet? Was unterscheidet die beiden Staaten, was ist ihnen gemeinsam?
